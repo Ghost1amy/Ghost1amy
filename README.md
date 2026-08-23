@@ -1,5 +1,6 @@
-TYSM [@PinkieWinkiee](https://github.com/PinkieWinkiee) - I'm Princess Celestia
+[@Dojjiko](https://github.com/Dojjiko) [@hoobae](https://github.com/hoobae) 💝💝💖💖
 
+TYSM [@PinkieWinkiee](https://github.com/PinkieWinkiee) - I'm Princess Celestia
 <!--
 **Ghost1amy/Ghost1amy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
