@@ -1,3 +1,4 @@
+
 [@Dojjiko](https://github.com/Dojjiko) [@hoobae](https://github.com/hoobae) 💝💝💖💖
 
 TYSM [@PinkieWinkiee](https://github.com/PinkieWinkiee) - I'm Princess Celestia
@@ -5,7 +6,7 @@ TYSM [@PinkieWinkiee](https://github.com/PinkieWinkiee) - I'm Princess Celestia
 
 
 
-![Uploading Screenshot_2026-08-27_150449.webp…]()
+<img width="351" height="394" alt="Screenshot 2026-08-27 011318" src="https://github.com/user-attachments/assets/665b7c12-a30c-4917-9a48-a5e2cd6d9655" />
 
 
 
