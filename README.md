@@ -11,6 +11,10 @@ William Afton giving Mizi a fruit head
 
 
 
+https://github.com/user-attachments/assets/80765a22-0c5e-460c-bbdc-fe09b1092c3b
+
+
+
 
 
 
