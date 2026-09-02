@@ -4,7 +4,6 @@
 TYSM [@PinkieWinkiee](https://github.com/PinkieWinkiee) - I'm Princess Celestia
 
 
-<img width="300" height="419" alt="Screenshot 2026-08-26 195147" src="https://github.com/user-attachments/assets/4fd591d2-9ddf-488b-993e-9523d98bbdc9" />
 
 
 
