@@ -4,9 +4,8 @@
 TYSM [@PinkieWinkiee](https://github.com/PinkieWinkiee) - I'm Princess Celestia
 
 
-William Afton giving Mizi a fruit head
+<img width="300" height="419" alt="Screenshot 2026-08-26 195147" src="https://github.com/user-attachments/assets/4fd591d2-9ddf-488b-993e-9523d98bbdc9" />
 
-<img width="351" height="394" alt="Screenshot 2026-08-27 011318" src="https://github.com/user-attachments/assets/665b7c12-a30c-4917-9a48-a5e2cd6d9655" />
 
 
 
