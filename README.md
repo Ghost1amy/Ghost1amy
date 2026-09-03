@@ -1,6 +1,5 @@
 
-[@Dojjiko](https://github.com/Dojjiko) [@hoobae](https://github.com/hoobae) love you guys https://github.com/pt-friendships
-
+[@Dojjiko](https://github.com/Dojjiko) [@hoobae](https://github.com/hoobae) skibtoiet
 TYSM [@PinkieWinkiee](https://github.com/PinkieWinkiee) - I'm Princess Celestia
 
 
