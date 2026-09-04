@@ -1,4 +1,4 @@
-<img width="414" height="324" alt="Screenshot 2026-08-22 153022" src="https://github.com/user-attachments/assets/faa1d694-02f9-4b8a-8922-4346b54e5aa4" />
+
 
 
 [@Dojjiko](https://github.com/Dojjiko) [@hoobae](https://github.com/hoobae) skibtoiet
@@ -20,7 +20,7 @@ TYSM [@PinkieWinkiee](https://github.com/PinkieWinkiee) - I'm Princess Celestia
 
 
 
-
+<img width="414" height="324" alt="Screenshot 2026-08-22 153022" src="https://github.com/user-attachments/assets/faa1d694-02f9-4b8a-8922-4346b54e5aa4" />
 
 
 
