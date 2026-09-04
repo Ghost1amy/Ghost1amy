@@ -1,4 +1,5 @@
-<img width="170" height="113" alt="Screenshot 2026-08-30 085408" src="https://github.com/user-attachments/assets/de19ada5-6d55-42d8-abee-90042bebb5ba" />
+<img width="414" height="324" alt="Screenshot 2026-08-22 153022" src="https://github.com/user-attachments/assets/faa1d694-02f9-4b8a-8922-4346b54e5aa4" />
+
 
 [@Dojjiko](https://github.com/Dojjiko) [@hoobae](https://github.com/hoobae) skibtoiet
 
