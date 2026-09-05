@@ -22,7 +22,7 @@ TYSM [@PinkieWinkiee](https://github.com/PinkieWinkiee) - I'm Princess Celestia
 
 <img width="292" height="327" alt="Screenshot 2026-09-05 161935" src="https://github.com/user-attachments/assets/21028f51-7153-46b9-ba99-f538ffb71643" />
 
-
+I'm a very shy person at first, apologies for that 😭😭😭
 <!--
 **Ghost1amy/Ghost1amy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
