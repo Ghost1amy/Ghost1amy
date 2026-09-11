@@ -10,4 +10,4 @@
 
 <p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1547880944797491241/Untitled250_20260911160600.png?ex=6aa507f7&is=6aa3b677&hm=c3c2805ee814513ebb657bf383d4c5e6b11f2f57e6bcb83994cf36a470d87769&" align="center" width="600" alt="Description"></p>
 
-<img width="668" height="334" alt="Screenshot 2026-08-15 080105" src="https://github.com/user-attachments/assets/21dee2fa-c91e-4079-9587-01ccfa2b4d76" />
+  <img width="668" height="334" alt="Screenshot 2026-08-15 080105" src="https://github.com/user-attachments/assets/21dee2fa-c91e-4079-9587-01ccfa2b4d76" />
