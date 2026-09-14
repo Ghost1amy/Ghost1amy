@@ -1,6 +1,6 @@
 Readme by [@hoobae](https://github.com/hoobae) YES YES YES YES!
 
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1547880944797491241/Untitled250_20260911160600.png?ex=6aa507f7&is=6aa3b677&hm=c3c2805ee814513ebb657bf383d4c5e6b11f2f57e6bcb83994cf36a470d87769&" align="center" width="600" alt="Description"></p>
+<p align="center"><img src="https://github.com/user-attachments/assets/2a67922c-8675-443c-8205-3302e0786add" align="center" width="600" alt="Description"></p>
 <p align="center"><img src="https://github.com/user-attachments/assets/594acee8-e72c-40ec-afbb-cb72ba592fc1"
 align="center" width="300" alt="Description"></p>
 
@@ -11,7 +11,7 @@ align="center" width="300" alt="Description"></p>
 
 <p align="center"><img src="https://github.com/user-attachments/assets/974c8013-1b9a-44e5-974a-d3418a57ea75" alt="ugly" width="450"></p>
 
-<p align="center"><img src="https://cdn.discordapp.com/attachments/1282985399051878441/1547880944797491241/Untitled250_20260911160600.png?ex=6aa507f7&is=6aa3b677&hm=c3c2805ee814513ebb657bf383d4c5e6b11f2f57e6bcb83994cf36a470d87769&" align="center" width="600" alt="Description"></p>
+<p align="center"><img src="https://github.com/user-attachments/assets/2a67922c-8675-443c-8205-3302e0786add" align="center" width="600" alt="Description"></p>
 
 <img width="307" height="353" alt="Screenshot 2026-08-14 134838" src="https://github.com/user-attachments/assets/1d2c6222-9961-46c5-a45d-12094b44aaa5" />
 
