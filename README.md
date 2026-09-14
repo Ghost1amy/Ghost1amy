@@ -20,4 +20,4 @@ funny corner
 
 https://github.com/user-attachments/assets/5f3ce974-9a53-41f2-a6fc-3d076c56eeee
 
-https://github.com/user-attachments/assets/9bbcfd7b-2ef0-4c8c-81b9-bef2f17fcc4a
+
