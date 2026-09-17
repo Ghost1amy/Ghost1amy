@@ -17,7 +17,9 @@ align="center" width="300" alt="Description"></p>
 
 funny corner 
 
-
-https://github.com/user-attachments/assets/5f3ce974-9a53-41f2-a6fc-3d076c56eeee
+harvey you bitch
+<img width="668" height="386" alt="Screenshot 2026-09-16 170912" src="https://github.com/user-attachments/assets/5dbad841-177f-4647-9e8f-df756359e1f2" />
+SPAADDEEE 💖💖💖😭😭😭😭😭😭😭😭😭😭
+<img width="401" height="252" alt="Screenshot 2026-09-14 192820" src="https://github.com/user-attachments/assets/f49e0f3e-e172-4097-8a87-7b7edae00d25" />
 
 
