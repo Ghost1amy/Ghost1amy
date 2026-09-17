@@ -17,9 +17,15 @@ align="center" width="300" alt="Description"></p>
 
 funny corner 
 
-harvey you bitch
+harvey you fucking larper
+
+
 <img width="668" height="386" alt="Screenshot 2026-09-16 170912" src="https://github.com/user-attachments/assets/5dbad841-177f-4647-9e8f-df756359e1f2" />
+
+
 SPAADDEEE 💖💖💖😭😭😭😭😭😭😭😭😭😭
+
+
 <img width="401" height="252" alt="Screenshot 2026-09-14 192820" src="https://github.com/user-attachments/assets/f49e0f3e-e172-4097-8a87-7b7edae00d25" />
 
 
