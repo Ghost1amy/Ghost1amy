@@ -17,4 +17,6 @@ align="center" width="300" alt="Description"></p>
 
 funny corner 
 
+<img width="668" height="386" alt="Screenshot 2026-09-16 170912" src="https://github.com/user-attachments/assets/04350a50-92d1-49fc-b4b0-b3d6bbf2265d" />
+
 <img width="111" height="77" alt="Screenshot 2026-06-12 160900" src="https://github.com/user-attachments/assets/7d9390bf-ade3-48b7-bf83-9cb00456ea5f" />
