@@ -10,7 +10,6 @@ align="center" width="300" alt="Description"></p>
 
 
 
-<p align="center"><img src="https://github.com/user-attachments/assets/974c8013-1b9a-44e5-974a-d3418a57ea75" alt="ugly" width="450"></p>
 
 <p align="center"><img src="https://github.com/user-attachments/assets/2a67922c-8675-443c-8205-3302e0786add" align="center" width="600" alt="Description"></p>
 
@@ -20,23 +19,9 @@ funny corner
 
 
 
-<img width="668" height="386" alt="Screenshot 2026-09-16 170912" src="https://github.com/user-attachments/assets/a7e8a49f-894d-4e62-a9ed-7daded3f35c7" />
+<img width="360" height="312" alt="Screenshot 2026-09-22 181216" src="https://github.com/user-attachments/assets/509303ac-2e6a-4bb2-b5d8-7e15adfdacac" />
 
 
-
-
-<img width="599" height="305" alt="Screenshot 2026-09-19 205832" src="https://github.com/user-attachments/assets/09c761db-9399-4b4b-96ea-141b011497b8" />
-
-
-
-<img width="586" height="316" alt="Screenshot 2026-09-20 200955" src="https://github.com/user-attachments/assets/35899e03-943e-47a1-a8a6-3384deca8d38" />
-
-
-
-
-
-
-https://github.com/user-attachments/assets/58d56704-6e6e-4d89-8b4c-3736e376198f
 
 
 
