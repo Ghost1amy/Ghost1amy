@@ -26,6 +26,6 @@ funny corner
 
 
 
-<img width="286" height="197" alt="Screenshot 2026-09-14 174842" src="https://github.com/user-attachments/assets/3ff56072-3b72-465a-8a2f-b28e77a1bd13" />
+
 
 
