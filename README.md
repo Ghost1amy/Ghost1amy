@@ -1,4 +1,6 @@
 
+
+
 Readme by [@hoobae](https://github.com/hoobae) YES YES YES YES!
 
 <p align="center"><img src="https://github.com/user-attachments/assets/2a67922c-8675-443c-8205-3302e0786add" align="center" width="600" alt="Description"></p>
@@ -23,7 +25,8 @@ funny corner
 
 
 
+<img width="351" height="162" alt="Screenshot 2026-09-23 130407" src="https://github.com/user-attachments/assets/7cdf78bc-363a-4ff2-a41c-72c6dfa116ba" />
 
 
 
-
+<img width="443" height="353" alt="Screenshot 2026-09-23 132659" src="https://github.com/user-attachments/assets/46993d1b-754a-4582-92cf-cedcb325115e" />
