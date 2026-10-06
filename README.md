@@ -17,16 +17,17 @@ align="center" width="300" alt="Description"></p>
 
 <img width="307" height="353" alt="Screenshot 2026-08-14 134838" src="https://github.com/user-attachments/assets/1d2c6222-9961-46c5-a45d-12094b44aaa5" />
 
-funny corner 
 
 
 
 
+Hi yes drawn by me Berry Blast my oc yes ok
+
+
+<img width="259" height="189" alt="Berr berr" src="https://github.com/user-attachments/assets/29b1715d-4df6-48b3-b972-1bb555c83f27" />
 
 
 
-
-<img width="156" height="123" alt="Screenshot 2026-09-26 184736" src="https://github.com/user-attachments/assets/9fbff75c-7a0c-4aa5-8122-05ed817f27ed" />
 
 
 
