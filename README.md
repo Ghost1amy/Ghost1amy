@@ -21,10 +21,8 @@ align="center" width="300" alt="Description"></p>
 
 
 
-Hi yes drawn by me Berry Blast my oc yes ok
+<img width="260" height="165" alt="Screenshot 2026-10-11 163444" src="https://github.com/user-attachments/assets/11ec39b3-4244-481a-87e7-ec7ee546a64e" />
 
-
-<img width="259" height="189" alt="Berr berr" src="https://github.com/user-attachments/assets/29b1715d-4df6-48b3-b972-1bb555c83f27" />
 
 
 
