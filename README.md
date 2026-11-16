@@ -25,7 +25,7 @@ align="center" width="300" alt="Description"></p>
 
 
 
-
+<img width="328" height="332" alt="Screenshot 2026-10-31 023233" src="https://github.com/user-attachments/assets/b286ee08-fee9-4188-ae6d-d53ab10aa08d" />
 
 
 
