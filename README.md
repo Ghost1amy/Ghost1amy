@@ -15,7 +15,8 @@ align="center" width="300" alt="Description"></p>
 
 <p align="center"><img src="https://github.com/user-attachments/assets/2a67922c-8675-443c-8205-3302e0786add" align="center" width="600" alt="Description"></p>
 
-<img width="307" height="353" alt="Screenshot 2026-08-14 134838" src="https://github.com/user-attachments/assets/1d2c6222-9961-46c5-a45d-12094b44aaa5" />
+<img width="417" height="368" alt="Screenshot 2026-11-04 225055" src="https://github.com/user-attachments/assets/f9e90840-288d-4843-8aba-1f3e57a9143b" />
+
 
 
 
