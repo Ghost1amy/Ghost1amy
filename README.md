@@ -15,17 +15,7 @@ align="center" width="300" alt="Description"></p>
 
 <p align="center"><img src="https://github.com/user-attachments/assets/2a67922c-8675-443c-8205-3302e0786add" align="center" width="600" alt="Description"></p>
 
-<img width="417" height="368" alt="Screenshot 2026-11-04 225055" src="https://github.com/user-attachments/assets/f9e90840-288d-4843-8aba-1f3e57a9143b" />
 
 
 
-
-
-
-
-
-
-<img width="328" height="332" alt="Screenshot 2026-10-31 023233" src="https://github.com/user-attachments/assets/b286ee08-fee9-4188-ae6d-d53ab10aa08d" />
-
-
-
+Main Interests: Invincible , Orv , Hollow Knight , Avatar: The Last Airbender , The Mimic on Roblox
