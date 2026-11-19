@@ -19,3 +19,9 @@ align="center" width="300" alt="Description"></p>
 
 
 Main Interests: Invincible , Orv , Hollow Knight , Avatar: The Last Airbender , The Mimic on Roblox
+
+
+
+<img width="201" height="246" alt="Screenshot 2026-08-29 090927" src="https://github.com/user-attachments/assets/9020d089-2df4-4d71-bde6-a4150b319c25" />
+<img width="654" height="283" alt="Screenshot 2026-09-12 213703" src="https://github.com/user-attachments/assets/f3e23d71-2767-4d36-8f99-77c9b629f744" />
+
